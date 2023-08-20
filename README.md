@@ -1,2 +1,2 @@
-# A bouquet of sparkling lowers
+# A bouquet of sparkling flowers
  
